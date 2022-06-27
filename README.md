@@ -1,4 +1,5 @@
 Unit 5 - Financial Planning
+![image](https://user-images.githubusercontent.com/105663954/176004693-7d2393bf-9cf8-4848-8392-af83796f6897.png)
 
 
 Background
